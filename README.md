@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @21-3056
+- 👀 i’m interested in gaming ig
+- 🌱 I’m currently learning Computer Science Higher Level
+- 📫 get @ my IG: zvcarel
